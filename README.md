@@ -1,6 +1,6 @@
 # Alexander Hines
 
-* I Run the SKi and SNowboard club and Ski competitively
+* I Run the Ski and Snowboard club and ski competitively
 * I like to build and modify computers
 * I enjoy both single player and multiplayer video games
 
